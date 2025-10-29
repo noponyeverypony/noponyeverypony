@@ -1,5 +1,8 @@
 <img src="https://github.com/noponyeverypony/noponyeverypony/blob/main/logo.png">
-<img src="https://github.com/noponyeverypony/noponyeverypony/blob/main/vecteezy_aesthetic-golden-line_43006867.png">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ-Nopony, everypony!-ㅤㅤㅤㅤ[EVERY]
+Greetings, greetings! My name is Every! Yes, the determiner, quite confusing, isn't it?
+You may find me wherever the ponies trot, I am a fan of music, and do enjoy finding new songs, and such!
+Please, do come interact! I don't mind at all! 
 
 <img src="https://github.com/noponyeverypony/noponyeverypony/blob/main/ezgif-5eb082ae0cb216.gif">
 

@@ -1,4 +1,4 @@
-<img src="https://github.com/noponyeverypony/noponyeverypony/blob/main/logo.png">
+<img src="https://github.com/noponyeverypony/noponyeverypony/blob/main/logo2.png">
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ-Nopony, everypony!-ㅤㅤㅤㅤ[EVERY]
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 Greetings, greetings! My name is Every! Yes, the determiner, quite confusing, isn't it?
